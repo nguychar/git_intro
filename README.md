@@ -1,1 +1,2 @@
 Charles Nguyen
+nguychar@oregonstate.edu
